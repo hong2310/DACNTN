@@ -4,4 +4,4 @@
 - NGUYỄN THỊ THU HỒNG – 52100962
 - NGUYỄN THỊ ANH ĐÀO – 52000830
 #### Người hướng dẫn
-- TS. Trương Đình Tú
+- TS. TRƯƠNG ĐÌNH TÚ
